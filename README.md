@@ -17,9 +17,9 @@ Years of intense focus and effort in kitchens taught me to learn quickly, adapt 
 
 I am always looking for ways to improve my skills and knowledge. My preferred method is building projects, check out some of mine below!
 
-I have a passion for finding the most efficient, effective solutions to problems and I have a deep-seated disdain for bad UI/UX!
+I have a passion for finding the most efficient, effective solutions to problems and I have a deep-seated need to fix bad UI/UX!
 
-When I'm not working, you can find me cooking in the kitchen, enjoying quality time with my family and friends, listening to/playing music (upright bass is my current instrument), trail running, or kayaking around the SF Bay!
+When I'm not working, you can find me cooking in the kitchen, enjoying quality time with my family and friends, listening to/playing music (currently learning upright bass), trail running, or kayaking around the SF Bay!
 
 
 ## Toolbelt
